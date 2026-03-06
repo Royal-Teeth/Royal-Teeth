@@ -7,12 +7,7 @@
  
 ![706c9ae7196c33d125dea36605e5f8f0](https://github.com/user-attachments/assets/7252bc3d-6f98-46bd-8687-7d6949c35b46)
 
-##  　　 　　　　　 INFO  ABOUT  ME
-####   　　 　　　　　 I'm  she / they   any prns are alright  I'm MOSTLY AT the docks if you know me heh,,, ＼（＾○＾）人（＾○＾）／
-####   　　 　　　　　  my bday is at Feb 22th , happy birthday to me  !! 
-#####   I'm cool with c+h ships  w my oc! or interaction I'm NOT!!!!!!! SCARY.. 
-######   I sometimes be either annoying ╥﹏╥ or just scattered around
-
+##  　　 　　　　　 I'm sorry Ok. don't say why I apologize. 
 #   　　 　　　　　  BONUS  :  PICTURES
 ![Screenshot_20260218_153453](https://github.com/user-attachments/assets/1d35a6c5-ef1e-4ca9-81da-9a85bb999974)
 ![Screenshot_20260217_162605](https://github.com/user-attachments/assets/83dc69ac-23fc-4435-84de-3c927d452cb7)
