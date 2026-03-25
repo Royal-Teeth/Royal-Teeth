@@ -1,9 +1,11 @@
-
-
+  　　 　　　　　 
  
- <img width="640" height="141" alt="dv1o4g" src="https://github.com/user-attachments/assets/19bc54cf-0541-4b6a-94f5-4446f3dae75e" />
-     
-  #  　　 　　　　　  sigh I'm too lazy. 
-#   　　 　　　　　  
+ 
+ 
+#       　  　　 　　　　 wip  wip wip
+# ![Tumblr_l_31105734040997](https://github.com/user-attachments/assets/b88442f5-717e-458e-a237-b3c8a7f82361)
+  
+ ##   　　 　　　　　 name name 2 
+   　
   　　 　　　　　
-            <img width="680" height="168" alt="tumblr_98d6006769c6b1ce520ec09761304276_4e9ec637_1280" src="https://github.com/user-attachments/assets/6df2958c-f7da-4b33-b2fc-2b0a6b2a1ce2" />
+            
