@@ -1,5 +1,5 @@
-  　　 　　　　　 
- 
+ 　　 　　　　　 
+  　　     　　　  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Georgia&pause=1000&color=DB584FE2&width=450&lines=%22If+I+didn't+know+any+better+it+seem+ilke%22;%22+You're+trying+to...%22;%22Where's+Kinger.%22)](https://git.io/typing-svg)
  
  
 #       　  　　 　　　　 file.github.osevr.
