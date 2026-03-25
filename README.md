@@ -16,4 +16,27 @@
 
           
             
-####  　　 　　　　　  Credit : [LINK](https://www.tumblr.com/transparenticons?source=share)  for the Caine gif :-: check their tumbler
+####  　　 　　　　　  Credit : [LINK](https://www.tumblr.com/transparenticons?source=share)  for the Caine gif :-: check their tumbler   　　 　　　　　   　　 　　　　　   　　 　　　　　   　　 　　　　　   　　 　　　　　   　　 　　　　　   　　 　　　　　   　　 　　　　　   　　 　　　　　   　　 　　　　　   　　 　　　　　   　　 　　　　　   　　 　　　　　   　　 　　　　　   　　 　　　　　   　　 　　　　　   　　 　　　　　   　　 　　　　　   　　 　　　　　   　　 　　　　　   　　 　　　　　   　　 　　　　　   　　 　　　　　 
+
+
+
+
+
+
+
+
+
+  　　 　　　　　  　　 ︵︵︵︵︵︵ ︵︵︵︵︵︵︵  　　 　　　　　 
+
+
+
+
+
+
+
+
+
+
+
+
+![Screenshot_20260325_222851](https://github.com/user-attachments/assets/15004aaa-0d61-4337-90d1-a34db0e94144)
