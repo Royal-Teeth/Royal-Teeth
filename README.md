@@ -7,8 +7,8 @@
   
  
   　　  　　 　　　　　  　　　　　 
-  　　 　　　　　 
-  　　 　　　　　 
+  [STRAW PAGE]( https://local-amazing.straw.page) 
+  　　 　　　
 
 
   
@@ -26,7 +26,7 @@
 
 
 
-#  　　 　　　　　  　　 ︵︵︵︵︵︵ ︵︵︵︵︵︵︵  　　 　　　　　 
+  　　 　　　　　  　　 ︵︵︵︵︵︵ ︵︵︵︵︵︵︵  　　 　　　　　 
 
 
 
