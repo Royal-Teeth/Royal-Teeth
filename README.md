@@ -1,4 +1,5 @@
- 　　 　　　　　 
+ 　　 　　　　　 <img width="900" height="327" alt="Tumblr_l_1782476407444" src="https://github.com/user-attachments/assets/4eb29d86-1777-4711-b9cf-a40011824480" />
+
   　　     　　　  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Georgia&pause=1000&color=DB584FE2&width=450&lines=%22If+I+didn't+know+any+better+it+seem+ilke%22;%22+You're+trying+to...%22;%22Where's+Kinger.%22)](https://git.io/typing-svg)
  
  
