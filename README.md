@@ -7,5 +7,4 @@
 [PRNS.CC](https://pronouns.cc/@bugGun)  　　 　　  　　   [STRAW PAGE ](https://local-amazing.straw.page)    　　 　　　  　　 　　　　[ATABOOK](https://xai.atabook.org/)
                      
 
-  　　 　　　  　　 　　　　　 　　    　　
-
+  　　 　　　  　　 　　　　　 　　   
